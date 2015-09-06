@@ -279,10 +279,13 @@ October 19, 2014
 4. Shall be the Chapter’s “Diamond” editor.
 5. Is in charge of all correspondence other than that with Alumni.
 
-#### Interfraternity Council (IFC) Representative
+#### Vice-President of External Affairs
 
-1. Shall attend all IFC meetings
-2. Shall report to the Chapter all relevant events that occurred and information that was presented at all IFC meetings since the last Chapter meeting.
+1. Shall complete and submit the 5 Star Standards Accreditation and Awards of Excellence packet for the Chapter each year.
+2. Shall attend all IFC meetings
+3. Shall report to the Chapter all relevant events that occurred and information that was presented at all IFC meetings since the last Chapter meeting.
+4. Shall oversee and coordinate all matters pertaining to the external affairs of the chapter.
+5. Shall submit a written report to the Chapter at the end of his or her term concerning the welfare and direction of the Chapter.
 
 #### Rush Chairman
 
